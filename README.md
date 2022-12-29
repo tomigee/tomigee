@@ -1,4 +1,4 @@
-👋 hi, I’m @tomigee.
+👋 I’m @tomigee.
   
 	
 	
